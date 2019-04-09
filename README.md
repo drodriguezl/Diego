@@ -1,2 +1,1 @@
 # Diego
-estudiad cabrones!!!
